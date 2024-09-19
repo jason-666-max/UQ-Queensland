@@ -1,0 +1,7 @@
+需要UQ昆士兰大学的计算机专业资料 或
+
+同学们在本门课程的任何环节中遇到问题，欢迎随时与我联系！
+
+欢迎加我微信联系： ifate520
+
+![131726739638_ pic](https://github.com/user-attachments/assets/aae0c143-ebd2-4003-adfd-86076f320fd3)
